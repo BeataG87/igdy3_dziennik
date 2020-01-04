@@ -1,0 +1,1 @@
+# igdy3_dziennik
